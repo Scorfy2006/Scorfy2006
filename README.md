@@ -7,6 +7,6 @@
 
 
 ## [Discord Server 😎](https://discord.gg/CKbxXW2) | [Website](https://publicbots.eu)
-<a href="https://discord.gg/milrato"><img src="https://cdn.discordapp.com/attachments/771419946731175987/888080802087333918/unknown.png" /></a>
+<a href="https://discord.gg/CKbxXW2"><img src="https://cdn.discordapp.com/attachments/771419946731175987/888080802087333918/unknown.png" /></a>
 
 
